@@ -1,2 +1,15 @@
-# saparata 
-Don't copy my skins please 
+
+
+# sierra or saps any names or nickname are fine for me 
+
+my pronouns are anything by i go by she/him 
+
+i am 18
+
+my ponies are always c*h unless im with someone or my friends 
+
+whispering to interact are fine just dont whisper to me about some stuff that wil make me uncomfortable
+
+14 or under are dni unless i know you or meet you same goes to 25+ 
+
+please dont copy my skins nor take inspiration i work hard for my skins to look good 
