@@ -1,6 +1,6 @@
 
 
-# sie or saps any names or nickname are fine for me 
+# shu or saps any names or nickname are fine for me 
 
 my pronouns are anything by i go by he/him 
 
