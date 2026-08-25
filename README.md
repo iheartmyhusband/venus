@@ -4,7 +4,7 @@
 
 my pronouns are anything or just she/her or even he/him
 
-i am 18+
+I am 18 up
 
 my ponies are always c*h unless im with someone or my friends 
 
