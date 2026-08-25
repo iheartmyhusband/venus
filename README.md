@@ -1,10 +1,10 @@
 
 
-# shu or saps any names or nickname are fine for me 
+# pixie or shuri any names or nickname are fine for me 
 
-my pronouns are anything by i go by he/him 
+my pronouns are anything or just she/her or even he/him
 
-i am 18
+i am 18+
 
 my ponies are always c*h unless im with someone or my friends 
 
