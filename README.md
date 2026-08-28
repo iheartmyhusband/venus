@@ -1,6 +1,6 @@
 
 
-# pixie or shuri any names or nickname are fine for me 
+# pixie or shuri any names or nicknames are fine for me 
 
 my pronouns are anything or just she/her or even he/him
 
